@@ -1,2 +1,2 @@
 # Labs_PSTU_2023
-1
+Ataullayew Azizbek ИВТ23-1б
